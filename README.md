@@ -1,2 +1,2 @@
 # entahlah
-well, i don't know what i have make is
+well, i don't know what i have made is
